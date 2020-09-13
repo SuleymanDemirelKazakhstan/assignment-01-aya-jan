@@ -1,1 +1,2 @@
-# DUMMY TEXT
+Ayazhan Amantayeva 
+190107024
